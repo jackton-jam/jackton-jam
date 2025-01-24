@@ -1,4 +1,6 @@
-## Hi there 👋
+Tsavo lions have barely any mane.
+A tiger's territory and hunting range is drastically reduced when she has cubs.
+Snow leopards can't roar.
 
 <!--
 **jackton-jam/jackton-jam** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
