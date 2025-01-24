@@ -2,6 +2,10 @@ Tsavo lions have barely any mane.
 
 A tiger's territory and hunting range is drastically reduced when she has cubs.
 
+Cheetahs eat quickly, before other predators can chase them off and steal their kill.
+
+Clouded leopards have the largest canines relative to body size, among all wild cats.
+
 Snow leopards can't roar.
 
 <!--
